@@ -1,4 +1,4 @@
-# 
+# AI-powered NFT Sniper for nft mint bot | royalty-calculator & wash-trading-detection is the best nft mint bot, featuring royalty-calculator and wash-trading-detection. Fast,
 
 
 
